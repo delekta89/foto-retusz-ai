@@ -1,1 +1,1 @@
-# -foto-retusz-ai.
+# -foto-retusz-ai
